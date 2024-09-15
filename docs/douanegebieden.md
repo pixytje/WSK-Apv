@@ -1,8 +1,8 @@
-# Douanegebieden binnen Arnix
+# Douanegebieden binnen Weskust
 
-Arnix kent enkele douanegebieden. In een risicogebied mag preventief gefouilleerd worden. Dus dat wilt zeggen dat ook voertuigen gecontroleerd mogen worden. Hier onder zijn deze gebieden aangegeven.
+Weskust kent enkele douanegebieden. In een risicogebied mag preventief gefouilleerd worden. Dus dat wilt zeggen dat ook voertuigen gecontroleerd mogen worden. Hier onder zijn deze gebieden aangegeven.
 
-De korpsleiding is bevoegd om, in samenspraak met de gemeenteraad van Arnix, aanvullende douanegebieden aan te wijzen. Hiervoor gelden dezelfde regels als de normale douanegebieden.
+De korpsleiding is bevoegd om, in samenspraak met de gemeenteraad van Weskust, aanvullende douanegebieden aan te wijzen. Hiervoor gelden dezelfde regels als de normale douanegebieden.
 
 ## Kaartweergave
 

@@ -1,2 +1,2 @@
-# Arnix-APV
-APV voor Arnix RP, Created by Hexium Remake
+# Weskust-APV
+APV voor Weskust RP, Created by Hexium Remake
